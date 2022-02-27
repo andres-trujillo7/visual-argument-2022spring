@@ -20,3 +20,4 @@ Alex Larin Picture | Courtesy of Alex Larin's Twitter: https://twitter.com/alexl
 Mario Gonzalez Picture |  No Copyright infringement is intended. ALL RIGHTS GO TO CONCACAF.com https://www.concacaf.com/gold-cup/article/el-salvador-gk-gonzalez-i-get-confidence-from-big-saves/
 Ronald Gomez Picture | No Copyright infringement is intended. ALL RIGHTS GO TO beinsports.com https://www.beinsports.com/au/world-cup-qualifiers/news/usa-held-by-el-salvador-in-world-cup-qualifyi/1744115
 Cristian Gil Picture | No Copyright infringement is intended. ALL RIGHTS GO TO La Selecta/FESFUT and elsalvador.com https://www.elsalvador.com/deportes/selecciones/selecta-cristian-gil-brayan-qatar-2022-amistoso-marte/917363/2022/
+Soccer Ball | CC 0 License https://commons.wikimedia.org/wiki/File:Soccerball.svg
