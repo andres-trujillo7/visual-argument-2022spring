@@ -1,4 +1,5 @@
-# **El Proceso**
+# **Confía en El Proceso**
+*'Trust the process'*
 
 For my visual argument, I want to make something that holds a lot of meaning to me. I want my argument to portray my optimism and how likely I think it is for El Salvador's national (football/soccer) team (aka La Selecta) to qualify to the 2026 World Cup. They haven't done it since 1982, and have been struggling to do it since due to certain scandals such as match-fixing, poor infrastructure etc. Nevertheless, fortunately, lately, things have been looking up. Just about a year ago, they had a horrible coach who often made questionable decisions, and the players weren't performing, so all hope had seem lost and it seemed like I would never be able to see El Salvador play in the World Cup.
 
